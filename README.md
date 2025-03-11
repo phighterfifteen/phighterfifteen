@@ -6,7 +6,7 @@ i speak in very weird ways and the way i behave changes depending on who im talk
 
 if i just met you im probably going to need tonetags because idk what upsets you or not or what your humor is like but. after i get to know you i dont need them (if i do ill ask you for your tone) and i also dont use much tonetags besides "JOKE" and occasionally "/nsrs" if i just met you and think its needed
 
-Guys. Please. C+h. Eith me. i beg it makes me soooo joyous. i Sometimes c+h peopel myself but i dont a lot of the time becays im Shy or if theyre sitting with other people  . also i wont cuddle with you if you dont have c+h in your name ecause Idk ur boundaries so im not taking any chances 
+Guys. Please. Cuddle. Eith me. i beg it makes me soooo joyous. i Sometimes cuddle peopel myself but i dont a lot of the time becays im Shy or if theyre sitting with other people  . also i wont cuddle with you if you dont have c+h in your name ecause Idk ur boundaries so im not taking any chances 
 
 it/its pronouns or Ask . my gender and pronouns constantly change Help. heavy forsaken, phighting and dream game interests, ask for more. i REALLY   REALLY LIKE BETTA FISH I WILL YAP FOR A LONG TIME IF GIVEN THE CHANCE but i wont without permission cuz im scared of scaring my oomfs away
 
