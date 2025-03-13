@@ -12,6 +12,8 @@ it/its pronouns or Ask . my gender and pronouns constantly change Help. heavy fo
 
 also i yap a Lot. a  LOOOOOT. if it gets annoying just tell me to Stop and i will
 
+and uhhhhhhhhhhhh. i have memory problems. i wont remember you if its been a month and we havent played at all after we friended eachother. SORRY.... i try to add friend notes and put the name of the pony you used when i met you but theres a Slim chance i didnt or still dont remember.. gulp
+
 
 <!---
 phighterfifteen/phighterfifteen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
