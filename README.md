@@ -1,4 +1,4 @@
-i feel a song coming on... Hit it, Elliot!
+I feel a song coming on... Hit it, Elliot!
 ummm ill remake this later. it/its prns
 
 
