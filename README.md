@@ -1,4 +1,6 @@
-I feel a song coming on... Hit it, Elliot!
+i was teh original mafi guys.... Sighs
+
+#1 sword phighting fan Fight me ^_^
 
 ummm ill remake this later. it/its prns
 
