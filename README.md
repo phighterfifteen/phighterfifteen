@@ -4,6 +4,8 @@ i was teh original mafi guys.... Sighs
 
 ummm ill remake this later. it/its prns
 
+pls dont be mean to me ill cry so hard... pls.. be nice....
+
 
 <!---
 phighterfifteen/phighterfifteen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
