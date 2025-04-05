@@ -1,6 +1,6 @@
 i was teh original mafi guys.... Sighs
 
-#1 sword phighting fan Fight me ^_^
+#1 sword phighting fan .....
 
 ummm ill remake this later. it/its prns
 
