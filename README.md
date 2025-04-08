@@ -1,10 +1,4 @@
-i was teh original mafi guys.... Sighs
-
-#1 sword phighting fan .....
-
-ummm ill remake this later. it/its prns
-
-pls dont be mean to me ill cry so hard... pls.. be nice....
+wails so loud pls c+h pls pls pls i love cuddles but im too Scared to approach poeople   first  please c+hple
 
 
 <!---
