@@ -2,7 +2,7 @@ wails so loud pls c+h pls pls pls i love cuddles but im too Scared to approach p
 
 i usualy just sit around and spectate ponies, sometimes im offtab so w2i. i like to crown ponies a lot HELP
 
-dandy's world fandom dni, forsaken fandom dniuf, phighting & blocktales fandom iwc some of yall are MAD WEIRD
+dandy's world fandom dni, forsaken fandom dniuf, phighting & blocktales fandom iwc some of yall are MAD WEIRD!!!!!!
 
 
 <!---
