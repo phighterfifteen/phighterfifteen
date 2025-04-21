@@ -1,4 +1,4 @@
-wails so loud pls c+h pls pls pls i love cuddles but im too Scared to approach poeople   first  please c+hple
+wails so loud pls c+h pls pls pls i love cuddles but im too Scared to approach poeople   first  please c+hple (ships dni 😢😢😢)
 
 i usualy just sit around and spectate ponies, sometimes im offtab so w2i. i like to crown ponies a lot HELP
 
