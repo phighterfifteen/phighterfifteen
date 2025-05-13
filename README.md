@@ -1,8 +1,4 @@
-wails so loud pls c+h pls pls pls i love cuddles but im too Scared to approach poeople   first  please c+hple (doublefedora/pizzadebt dni 😢😢😢)
-
-i usualy just sit around and spectate ponies, sometimes im offtab so w2i. i like to crown ponies a lot HELP
-
-dandys world dni, regretevator fandom dniuf, forsaken phighting & blocktales fandom iwc some of yall are MAD WEIRD!!!!!!
+forsaken & phighting fandom iwcaution
 
 
 <!---
