@@ -1,4 +1,4 @@
-um idk what 2 put here anymore read my rentry
+um idk what 2 put here anymore read my rentry byi
 
 
 <!---
