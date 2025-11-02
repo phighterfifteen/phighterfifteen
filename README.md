@@ -1,2 +1,2 @@
 anyone can c+h  
-xhe/xyr pronouns
+read rentry byi
